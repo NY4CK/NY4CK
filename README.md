@@ -8,5 +8,5 @@ A música não apenas me inspira, mas também me ensina sobre harmonia, ritmo e 
 Se você está procurando alguém dedicado, criativo e apaixonado por resolver problemas, ficarei feliz em me conectar e contribuir para projetos incríveis!
 
 📫 Você pode me encontrar no LinkedIn para mais detalhes sobre minha experiência e habilidades. Vamos criar algo incrível juntos!
-https://www.linkedin.com/in/pablo-henrick-23307a212/
+https://www.linkedin.com/in/pablohenrick/
 
